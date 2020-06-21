@@ -1,0 +1,2 @@
+# PSYK109
+Motivasjonspsykologi
